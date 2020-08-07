@@ -1,1 +1,1 @@
-![](https://gfycat.com/pastbriskduckbillplatypus)
+![](https://thumbs.gfycat.com/PastBriskDuckbillplatypus-size_restricted.gif)
